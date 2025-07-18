@@ -1,6 +1,3 @@
-Absolutely! Here's a clean, professional description with **light, relevant emojis** to keep it engaging without overdoing it:
-
----
 
 ## 🧠 MindCare AI Chatbot
 
